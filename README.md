@@ -1,1 +1,1 @@
-nullstrap is discontinued 😔
+nullstrap is discontinued until further notice 😔
